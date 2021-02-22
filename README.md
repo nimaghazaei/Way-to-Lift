@@ -11,7 +11,7 @@ in order to prevent injuries when you have to lift and move some servers and mak
 - **Don't bend your lower back**.
 - **Don't bend your arms**.
 - **Don't look forward**. means don't bend your neck out of alignment with the rest of your body.
-- **Do same exact thees observation to putting down**.
+- **Do same exact these observation to putting down**.
 
 
   ![lift](https://www.wikihow.com/images/thumb/9/90/Lift-a-Heavy-Object-Safely-Step-6-Version-2.jpg/v4-460px-Lift-a-Heavy-Object-Safely-Step-6-Version-2.jpg.webp)  ![lift](https://images.squarespace-cdn.com/content/v1/5b4516a9e2ccd1895ac39864/1533669351015-GPS4G0301GVBPIB7JBT0/ke17ZwdGBToddI8pDm48kBAZ73Tyw8yafwiwqInxvWJZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVHNBBN5zAF68d1PxTDuqybGNJ0mFQ-r1HWZdAVyrsk0HD-3CTWZQ124CTRPXn-dnvM/lifting.gif)
