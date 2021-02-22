@@ -1,5 +1,5 @@
 # Way To Lift
-Probebly you think lifting a server from groung is a simple light weight job to do, but it's not!
+Probebly you think lifting a server from ground is a simple light weight job to do, but it's not!
 no matter you're a non athletic person or a bodybuilding champion , if you do it wrong; you are very likely to hurt yourself.
 
 in order to prevent injuries when you have to lift and move some servers and make it as a workuot , I have some advices for you :).
